@@ -1,3 +1,22 @@
+### Hi there 👋
+I'm Saransh, A Business Data Analyst with a specialization in data analysis, visualization, and reporting using Power BI, Excel, and SQL with a passion for learning with an endless supply of optimism and curiosity.
+
+
+Having adequate skills, self motivated and
+curious, with a keen interest in building user-centric products. Looking
+forward to honing my skills in a challenging environment.
+
+💼 Do reach [email](mailto:lopitamishra2001@gmail.com) <br/>
+  💬 Ask me about anything, i would love to help 😄 <br/>
+  👨‍💻 Checkout [my linkedin profile](https://www.linkedin.com/in/lopita-mishra-096534191/) <br/>
+  
+
+
+
+
+
+
+
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/saranshgoyal007/) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:goyalsaransh61@gmail.com) 
