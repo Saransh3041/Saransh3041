@@ -1,5 +1,6 @@
 ### Hi there 👋
 I'm Saransh, A Business Data Analyst with a specialization in data analysis, visualization, and reporting using Power BI, Excel, and SQL with a passion for learning with an endless supply of optimism and curiosity.
+
 Having adequate skills, self motivated and
 curious, with a keen interest in building user-centric products. Looking
 forward to honing my skills in a challenging environment.
