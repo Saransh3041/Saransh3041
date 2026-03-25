@@ -6,9 +6,10 @@ Having adequate skills, self motivated and
 curious, with a keen interest in building user-centric products. Looking
 forward to honing my skills in a challenging environment.
 
-💼 Do reach [email](mailto:lopitamishra2001@gmail.com) <br/>
-  💬 Ask me about anything, i would love to help 😄 <br/>
-  👨‍💻 Checkout [my linkedin profile](https://www.linkedin.com/in/lopita-mishra-096534191/) <br/>
+  💼**Do reach** [email](goyalsaransh61@gmail.com) <br/>
+  💬 **Ask me about:** Collaboration,Tech Support or Anything Else. 😊😊  <br/>
+  👨‍💻 **Checkout** [my linkedin profile](https://www.linkedin.com/in/lopita-mishra-096534191/) <br/>
+  ⚡ **Fun fact:** I Love Tech and Tech Love Me  <br/>
   
 
 
