@@ -8,7 +8,7 @@ forward to honing my skills in a challenging environment.
 
   💼**Do reach** [email](goyalsaransh61@gmail.com) <br/>
   💬 **Ask me about:** Collaboration,Tech Support or Anything Else. 😊😊  <br/>
-  👨‍💻 **Checkout** [my linkedin profile](https://www.linkedin.com/in/saranshgoyal007/) <br/>
+  👨‍💻 **Checkout my linkedin profile** [saranshgoyal007](https://www.linkedin.com/in/saranshgoyal007/) <br/>
   ⚡ **Fun fact:** I Love Tech and Tech Love Me  <br/>
   
 
